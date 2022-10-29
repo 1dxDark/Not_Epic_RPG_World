@@ -7,7 +7,7 @@ There will be an update on our forum soon, so stay tuned<br>
 
 *Any graphic corrections are approved.<br>
 <br>
-Downloads: 970+ (forum + github + other asset websites)<br>
+Downloads: 3899+ (forum + github + other asset websites)<br>
 <img src = "1_nulled.png">
 <img src = "nulled_chars.gif">
 
